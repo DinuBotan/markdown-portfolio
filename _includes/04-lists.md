@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Factfluness
+2. 12 rules for life
+3. The 4 hour work week
